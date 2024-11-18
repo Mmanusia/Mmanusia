@@ -1,10 +1,9 @@
 - 👋 Hi, I’m @Mmanusia
 - 👀 I’m interested in : idk lol
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently Happy
 - 📫 How to reach me : idk lol
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: KYS / KILL / YOURSELF
+- ⚡ Fun fact: Pler mabur
 
 <!---
 Mmanusia/Mmanusia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
