@@ -3,7 +3,7 @@
 - 🌱 I’m currently Happy
 - 📫 How to reach me : idk lol
 - 😄 Pronouns: KYS / KILL / YOURSELF
-- ⚡ Fun fact: Pler mabur
+- ⚡ Fun fact: 1+1=3
 
 <!---
 Mmanusia/Mmanusia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
