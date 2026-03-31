@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mmanusia
-- 👀 I’m interested in : idk lol
+- 👀 I’m interested in : woman
 - 🌱 I’m currently Happy
 - 📫 How to reach me : idk lol
 - 😄 Pronouns: KYS / KILL / YOURSELF
